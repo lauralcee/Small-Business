@@ -1,1 +1,4 @@
-# Small-Business
+# Small Business
+Deciding to start a business can be one of the most exhilarating decisions you make in your life. We are living in a world wherever everyone wants to make extra money and add to his income. Most people have achieved this by acquiring great business ideas. When one starts up a company, he must be ready to meet competition. It is important to note that you would not need to become rich or [click for more info](https://bizop.org) to succeed in business but have to think smartly. But there are a lot of moving parts and many different elements to consider.
+
+Social media for small businesses is a great way for emerging businesses to generate lead and build a reputation. If regularly updated, social media can deliver more results as compared to traditional mediums. Social media for small businesses gives brands an edge of control over the content that they want to post.Also, since social media is a two-way dialogue process, it helps businesses to instantly identify what is benefitting them. Social media for small businesses also helps generate Word of Mouth, which is one of the best tools for emerging businesses.
